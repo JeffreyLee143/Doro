@@ -1,0 +1,16 @@
+https://tenor.com/view/dorothy-nikke-doro-gif-7509545823082567005
+https://tenor.com/view/doro-nikke-dorothy-goddess-of-victory-gif-2819082609199830857
+https://tenor.com/view/oiiaoiia-doro-dorothy-nikke-gif-14611769257197171688
+https://tenor.com/view/steal-doro-gif-1027805425862452031
+https://tenor.com/view/doro-nikke-gif-5383253755470222749
+https://imgur.com/YBzofQ3
+https://tenor.com/view/doro-slap-nikke-meme-gif-14576689295330248960
+https://tenor.com/view/doro-eat-ticket-summon-dorothy-gif-6254959793726031037
+https://tenor.com/view/doro-dorothy-nikke-gif-5599408445189094436
+https://tenor.com/view/doro-nikke-wink-cute-gif-7970991933763561396
+https://tenor.com/view/scarseven-gif-715672438376920592
+https://imgur.com/oYnTtMX
+https://tenor.com/view/nikke-doro-dorothy-punch-gif-18123777785318228871
+https://tenor.com/view/doro-dorothy-shine-nikke-goddess-of-victory-nikke-gif-6119714738747897940
+https://cdn.discordapp.com/attachments/824618506318118933/1270969929235173528/24816A6376329159C271DC22B911A625_0.gif?ex=67d5097c&is=67d3b7fc&hm=c768e3644e77bfd190ba870325556d0539d6c5f85adfa3e8fbd120816f0ea138&
+https://cdn.discordapp.com/emojis/1240495620645453894.gif?size=160&quality=lossless
